@@ -1,0 +1,1 @@
+kosong iki bos
